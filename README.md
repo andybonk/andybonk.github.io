@@ -1,2 +1,2 @@
 ## hallo :P
-[Silly spinning sprigatito](https://tenor.com/view/sprigatito-spinning-cat-grass-green-gif-25204424)
+[aaaaaaa](https://cdn.discordapp.com/attachments/647888279970250762/1071098670595969044/sprigatito.jpg)
